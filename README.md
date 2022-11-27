@@ -21,7 +21,7 @@
 <br>
 <a href="https://legalservicebd.com/" target="_blank">Habanero</a>
 <br>
-<a href="[https://legalservicebd.com/](https://gameshanhdong.com/)" target="_blank">Joker123</a>
+<a href="https://gameshanhdong.com/" target="_blank">Joker123</a>
 <br>
 <a href="https://legalservicebd.com/" target="_blank">Situs Slot Online Deposit Dana</a>
 <br>
@@ -29,15 +29,15 @@
 <br>
 <a href="https://legalservicebd.com/" target="_blank">Great Blue</a>
 <br>
-<a href="[https://legalservicebd.com/](https://gameshanhdong.com/)" target="_blank">OngSlot88</a>
+<a href="https://bit.ly/Ongslots88" target="_blank">OngSlot88</a>
 <br>
 <a href="https://legalservicebd.com/" target="_blank">OngSlot88 slot</a>
 <br>
-<a href="[https://legalservicebd.com/](https://bit.ly/OngSlot88)" target="_blank">Daftar OngSlot88 slot</a>
+<a href="https://bit.ly/OngSlot88" target="_blank">Daftar OngSlot88 slot</a>
 <br>
 <a href="https://legalservicebd.com/" target="_blank">link alternatif slot online</a>
 <br>
-<a href="[https://legalservicebd.com/](https://bit.ly/Rtp-Slot-Online88)" target="_blank">game slot ongslot88</a>
+<a href="https://bit.ly/Rtp-Slot-Online88" target="_blank">game slot ongslot88</a>
 <br>
 <a href="https://legalservicebd.com/" target="_blank">ongslot88 slot online</a>
 <br>
@@ -47,9 +47,9 @@
 <br>
 <a href="https://legalservicebd.com/" target="_blank">judi slot ongslot88</a>
 <br>
-<a href="[https://legalservicebd.com/](https://bit.ly/OngSlot88)" target="_blank">ongslot88 </a>
+<a href="https://bit.ly/OngSlot88" target="_blank">ongslot88 </a>
 <br>
-<a href="[https://legalservicebd.com/](https://bit.ly/Rtp-Slot-Online88)" target="_blank">rtp slot ongslot88</a>
+<a href="https://bit.ly/Rtp-Slot-Online88" target="_blank">rtp slot ongslot88</a>
 <br>
 <a href="https://legalservicebd.com/" target="_blank">situs slot ongslot88</a>
 <br>
