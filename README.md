@@ -13,7 +13,7 @@
 <br>
 <a href="https://legalservicebd.com/" target="_blank">Idn Slot</a>
 <br>
-<a href="https://legalservicebd.com/" target="_blank">Link Alternatif Slot Online LIGADEWA</a>
+<a href="https://legalservicebd.com/" target="_blank">Link Alternatif Slot Online OngSlot88</a>
 <br>
 <a href="https://legalservicebd.com/" target="_blank">Daftar Idn Slot Terpercaya</a>
 <br>
